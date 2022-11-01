@@ -8,6 +8,8 @@
 
 - 📫 How to reach me **aryantirk3y@gmail.com**
 
+- 🚀 Porfolio **https://aryanty.vercel.app**
+
 - ⚡ Fun fact **have good sense of humour**
 
 <h3 align="left">Connect with me:</h3>
