@@ -8,7 +8,7 @@
 
 - 📫 How to reach me **aryantirk3y@gmail.com**
 
-- 🚀 Porfolio **https://aryanty.vercel.app**
+- 🚀 Portfolio **https://aryanty.vercel.app**
 
 - ⚡ Fun fact **have good sense of humour**
 
